@@ -1,2 +1,2 @@
-# www.taminomartinius.de
+# exercice en cours
 
